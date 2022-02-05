@@ -1,4 +1,4 @@
 # Binary to Decimal and Visa Versa
 
-DON'T make a Remaster or Remake of this App and PUBLISH it under YOUR Name. Only with the right autorisations by Cristi Computer incorporations.
-DON'T Sell it.
+I'm not giving you the Wear Os Version of it. 😈
+*****APP IS STILL IN BETA*****
