@@ -1,4 +1,4 @@
-# Binary to Decimal by CristiiiSE (AKA Cristi) 
+# Binary to Decimal by CristiiiSE (AKA Cristian that cracked the washing machine) 
 
 Application has been *****RELEASED***** on the Google Play Store!
 
