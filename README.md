@@ -1,4 +1,4 @@
-# Binary to Decimal by Cristi
+# Binary to Decimal by CristiiiSE (AKA Cristi) 
 
 Application has been *****RELEASED***** on the Google Play Store!
 
